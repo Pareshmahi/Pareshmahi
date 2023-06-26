@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Myself<br>👯 I’m looking to collaborate on <br>🤝 I’m looking for help with <br>🌱 I’m currently learning Data Science<br>💬 Ask me about <br>⚡ Fun fact Sports Lover and Humorous
+🔭 I’m currently working on Improving my skills<br>👯 I’m looking to collaborate on minor and major projects <br>🤝 I’m looking for help with Whosoever contacts me <br>🌱 I’m currently learning Data Science<br>💬 Ask me about sports and programming <br>⚡ Fun fact Sports Lover and Humorous
 
 
 ## 🌐 Socials:
